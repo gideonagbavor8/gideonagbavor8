@@ -74,7 +74,7 @@ I'm interested in opportunities involving:
 
 ## Let's Connect
 
-* 💼 [LinkedIn](https://www.linkedin.com/in/gideon-agbavor/)
+* 💼 [LinkedIn](https://www.linkedin.com/in/gideon-k-agbavor)
 * 💻 [GitHub](https://github.com/gideonagbavor8)
 
 Thanks for visiting my profile! Feel free to explore my repositories and projects.
